@@ -60,7 +60,7 @@ Doğal veya kimyasal çeşitli uyuşturucu maddeler ile nikotin, bireylerde düz
 # PANİK BOZUKLUĞU
 Nedensiz yere aniden ortaya çıkan dehşet, korku, panik ve telaş hisleri ile nöbet şeklinde yoğun bir sıkıntıya neden olan psikiyatrik hastalıktır. Ülkemizde ve dünyada oldukça yaygın görülen panik atak, değişken aralıklarla tekrarlayarak günlük yaşamı önemli ölçüde olumsuz etkiler. Ataklar genellikle yarım saatten kısa olmakla birlikte bazı kişilerde 1 saate kadar uzayabilir. Atakların sıklığı, süresi ve şiddeti kişiden kişiye farklılık gösterir. Terleme, çarpıntı, göğüs ağrısı, nefes darlığı, ölüm korkusu gibi belirtiler içeren panik bozukluğun tedavisinde ilaç tedavisi ile bilişsel davranışçı tedavilerden herhangi biri veya iki tedavinin kombinasyonu tercih edilebilir. 
 
-![panik bozukluğu](https://images.app.goo.gl/Wkk1CLyGjzKSvyv17)
+![panik bozukluğu](https://www.google.com/url?sa=i&url=https%3A%2F%2Fsisliterapi.com%2Fpanik-atak-ve-panik-bozukluk%2F&psig=AOvVaw1q3c3LK5yVuZHYG9XISYtq&ust=1647017875765000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCKCnmPKBvPYCFQAAAAAdAAAAABAD)
 
 [alıntı](https://sisliterapi.com/panik-atak-ve-panik-bozukluk/)
 
